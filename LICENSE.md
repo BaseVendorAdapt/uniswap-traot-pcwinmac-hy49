@@ -1,4 +1,4 @@
-# 
+# VIP uniswap trading bot tools for Mac OS | Premium uniswap trading bot tools for PC Windows. Featuring Web3 connectivity and volume analysis — optimized for maximum performance on every platform.
 
 
 
